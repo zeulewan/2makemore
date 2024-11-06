@@ -1,2 +1,2 @@
 #### current location
-makemore part 1: 20:00
+makemore part 1: 35:00
